@@ -1,1 +1,1 @@
-Il vincitore dell'edizione 2023 è KIDDISTOOOOO
+Il vincitore dell'edizione 2023 è **KIDDISTOOOOO*
