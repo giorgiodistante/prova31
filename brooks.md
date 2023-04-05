@@ -1,2 +1,2 @@
-boh è morto!
+boh non l'ho mai visto!
 
